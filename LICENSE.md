@@ -1,4 +1,4 @@
-# 
+# rare JetBrains IntelliJ IDEA para PC plugins é o melhor JetBrains IntelliJ IDEA para PC plugins com assinatura GPG e análise de plano de execução. Seguro, confiável e otimizado
 
 
 
